@@ -1,4 +1,4 @@
-# 👋 Hello there, I'm [Muhammad Ahmad Bhutta]!
+# 👋 Hello there, I'm Muhammad Ahmad Bhutta!
 
 I'm a **Data Scientist** and **Data Analyst** who loves to explore data, find patterns, and tell stories through numbers.
 
