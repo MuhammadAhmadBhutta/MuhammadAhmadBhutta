@@ -32,6 +32,11 @@ I'm a **Data Scientist** and **Data Analyst** who loves to explore data, find pa
 - 🐦 [Twitter](https://x.com/BestThe34569?s=09)
 - 💼 [LinkedIn](https://www.linkedin.com/in/ahmad-azhar-518231294)
 - 📊 [Kaggle](https://www.kaggle.com/muhammadahmadbhutta)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/ahmad-azhar-518231294/)  
+- 📸 [Instagram](https://www.instagram.com/thebestserviceprovider784)  
+- 📊 [Kaggle](https://www.kaggle.com/muhammadahmadbhutta)  
+- 📺 [YouTube: Bhutta's Everything](https://youtube.com/@bhuttageverything)  
+- 📺 [YouTube: Code With Bhutta G](https://www.youtube.com/@CODEWITHBHUTTAG)
 
 ---
 
